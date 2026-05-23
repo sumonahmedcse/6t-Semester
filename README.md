@@ -1,1 +1,1 @@
-# 6t-Semester
+# 6th-Semester
